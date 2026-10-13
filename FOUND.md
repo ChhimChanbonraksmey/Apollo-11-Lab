@@ -1,0 +1,3 @@
+# OFF TO SEE THE WIZARD..., File Path: Luminary099\THE_LUNAR_LANDING.agc, Line 254
+# SEE IF HE'S LYING, File Path: Luminary099\THE_LUNAR_LANDING.agc, Line 249
+# SILLY THING AROUND, File Path: Luminary099\THE_LUNAR_LANDING.agc, Line 246
